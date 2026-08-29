@@ -1,6 +1,3 @@
-- 👋 Hi, I’m @lightcatradio !!
-- 👀 I’m interested in front-end dev and python.
-- 🌱 I’m currently learning HTML & CSS and JavaScript too !! (thanks BroCode)
-- 💞️ I’m looking to collaborate on projects me and my friends make sometimes (check @R-P-T-S-Technologies)
-- 📫 How to reach me: Discord: @lightcatradio or @fewlipe | Instagram: @lightcatradio | email: felipegarcia62@yahoo.com
-- 😄 Pronouns: he/him (straight male)
+reach me: 
+
+Discord: @smallintmafia | Instagram: @lightcatradio | email: felipegarcia2lol@yahoo.com
